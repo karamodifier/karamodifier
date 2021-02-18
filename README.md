@@ -1,2 +1,0 @@
-# karasulh
-EEE student
